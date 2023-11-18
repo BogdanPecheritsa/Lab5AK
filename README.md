@@ -1,0 +1,1 @@
+# lab5_AK_PecheritsaBogdan
